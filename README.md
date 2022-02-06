@@ -1,4 +1,4 @@
-# 🖼️ | Informações pessoais
+#  Informações pessoais
 - 🇧🇷 | Nome: José
 - 📚 | Estudante de Python
 
