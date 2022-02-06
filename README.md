@@ -1,6 +1,6 @@
 #  Informações pessoais
 - 🇧🇷 | Nome: José
 - 📚 | Estudante de Python
+- 📌 | Apelido: roxodev
 
-
-Olá, pode me chamar de "onlyjoser" ou "ziirag1", nasci no dia 30 de novembro do ano 2005.
+> **[YouTube](https://youtube.com/channel/UCxHrOFINaTDAAFh3uEAgdoA) • [Instagram pessoal](https://www.instagram.com/ziirag1/)**
