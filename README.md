@@ -4,4 +4,4 @@
 - 📌 | Apelido: roxodev.
 - 🔗 | Contato: joseeer27@gmail.com
 
-> **[YouTube](https://youtube.com/channel/UCxHrOFINaTDAAFh3uEAgdoA) • [Instagram pessoal](https://www.instagram.com/ziirag1/)**
+> **[Instagram pessoal](https://www.instagram.com/ziirag1/)**
